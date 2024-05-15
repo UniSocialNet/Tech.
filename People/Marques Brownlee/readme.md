@@ -1,0 +1,1 @@
+- [How MKBHD Became The Most Powerful Man in Tech](https://youtu.be/tn-MGyr-6dk)
